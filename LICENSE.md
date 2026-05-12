@@ -1,4 +1,4 @@
-# 
+# Inkscape for PC | Inkscape for Windows advanced Plugin: style-panels & collaboration-tools offers the most advanced Inkscape for PC | Inkscape for Windows plugin, with
 
 
 
